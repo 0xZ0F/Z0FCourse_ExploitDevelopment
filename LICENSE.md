@@ -1,1 +1,0 @@
-You cannot redistribute this course without giving explicit credit to the author, Z0F.
